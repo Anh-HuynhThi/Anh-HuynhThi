@@ -6,4 +6,4 @@ HI THERE!!!!!!👋❤️❤️❤️
 - 😄 Fun fact: I love Codeing 💻, Traveling🌍, running 🏃,Food(🍲) and Music 🎵
 - 📫 How to reach me:
 - Email-me: anh.bruneau@gmail.com
-- Catch me from: https://www.linkedin.com/in/anh-huynh-92055a253/
+- Catch me from: https://www.linkedin.com/in/anhhuynh225/
